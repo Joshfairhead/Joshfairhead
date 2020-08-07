@@ -3,9 +3,9 @@
 
 ### Hallo! Do you like my badge? Its a symmetric gestalt :)
 
-I chose it because like you, I'm the air, trees, soil and water - embodied as living universe both on the macro and micro scales. 
+I chose it because like you, I'm the air, trees, soil and water - embodied as living universe both on the macro and micro scales. Like the symmetric gestalt her to the right :)
 <br> </br>
-In that regard, I'm just suggesting we dont exist in a vacuum! Were connected as part of a giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
+In that regard, I'm just suggesting we dont exist in a vacuum and are parts which make up wholes and infer properties from it! Were connected as part of a giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
 
 
 
