@@ -1,9 +1,9 @@
 <img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
 
 
-### Hallo! Do you enjoy this symbology?
+### Hallo! Do you enjoy symbology?
 
-I chose it because like you, I'm the air, trees, soil and water - embodied as living universe both on the macro and micro scales. Like the symmetric gestalt her to the right :)
+I chose this badge because like you; I'm the air, trees, soil and water - embodied as living universe both on the macro and micro scales. Like the symmetric gestalt here to the right :)
 <br> </br>
 In that regard, I'm just suggesting we dont exist in a vacuum and are parts which make up wholes and infer properties from it! Were connected as part of a giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
 
