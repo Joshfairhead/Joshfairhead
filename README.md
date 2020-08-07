@@ -1,7 +1,7 @@
 <img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
 
 
-### Hallo! Do you like my badge? Its a symmetric gestalt :)
+### Hallo! Do you enjoy this symbology?
 
 I chose it because like you, I'm the air, trees, soil and water - embodied as living universe both on the macro and micro scales. Like the symmetric gestalt her to the right :)
 <br> </br>
