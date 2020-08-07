@@ -1,9 +1,11 @@
 <img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
 
 
-### Hallo!
+### Hallo! Do you like my badge?
 
-I'm the air, trees, soil and water - embodied living universe both on the macro and micro scales. This might sound a bit hippie but I probably wouldn't exist without them. In that regard, I'm simply asserting that I dont exist in a vacuum and neither do you! Thats it - were connected as part of this giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
+I chose it because I'm the air, trees, soil and water - embodied living universe both on the macro and micro scales. This might sound a bit hippie but like you, I probably wouldn't exist without them. 
+<br> </br>
+In that regard, I'm simply asserting that I dont exist in a vacuum and neither do you! Thats it - were connected as part of this giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
 
 
 
