@@ -1,4 +1,4 @@
-<img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=350px height=350px/>
+<img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=100px height=100px/>
 
 
 ### Hallo!
