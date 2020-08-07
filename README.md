@@ -1,9 +1,9 @@
 <img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
 
 
-### Hallo! Do you like my badge?
+### Hallo! Do you like my badge? Its a symmetric gestalt :)
 
-I chose it because I'm the air, trees, soil and water - embodied living universe both on the macro and micro scales.
+I chose it because I'm the air, trees, soil and water - embodied living universe both on the macro and micro scales. 
 <br> </br>
 In that regard, I'm simply asserting that I dont exist in a vacuum and neither do you! Thats it - were connected as part of this giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
 
