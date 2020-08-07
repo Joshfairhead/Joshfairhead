@@ -1,4 +1,12 @@
-### Hi there 👋
+<img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=350px height=465px/>
+
+
+### Hallo!
+
+I'm the ocean, air, trees and embodied living universe both on the macro and micro scales. This might sound a bit hippie but I probably wouldn't exist without them. In that regard, I'm simply asserting that I dont exist in a vacuum and neither do you! Thats it - were connected as part of this giant autopoietic network that is cognizient and probably conscious on every level! ✨ 
+
+
+
 
 <!--
 **Joshfairhead/Joshfairhead** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
