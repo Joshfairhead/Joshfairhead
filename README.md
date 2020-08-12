@@ -3,7 +3,7 @@
 
 ### About - Sensemaker/Lunatic
 
-Identity... hmmm, tough one to express generically but I'll try! Ok, so - as a singular entity I'd consider myself an intergal or non-dualist in thought, "I" really dig the philosophy of language and symbol manipulation beacuse I see it as expressive capacity.  As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
+Identity... hmmm, tough one to express generically but I'll try! Ok, so as a singular entity I'd consider myself an intergal or non-dualist in thought, "I" really dig the philosophy of language and symbol manipulation beacuse I see it as expressive capacity.  As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
 <br> </br>
 As a collective being I tend to associate with divergent communities - people working on something radically different from the current status quo of extraction and zero sum games. The Tao which can be named is not the eternal Tao, so I won't try to articulate the intereior collective any further :). Lastly we have the exterior collective to identitfy with; and for me thats spaceship earth. Nationalisim has never worked for me, I've been the English person in Ireland and the Irish person in England - in/out groups don't lead to issues. When the aliens come I'll cease to identify as a citizen of earth, instead one of the syntropic Kosmos. 
 
