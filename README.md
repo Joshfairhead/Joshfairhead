@@ -1,9 +1,9 @@
-<img align="left" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
+<img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
 
 
 ### About - Sensemaker/Lunatic
 
-Identity is hard to express in these places generically, but I'll try! As a singular entity I'd consider myself an intergal or non-dualist in thought, I really dig symbolology and the philosophy of language beacuse I see it as an expressive capacity.  As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
+As a singular entity I'd consider myself an intergal or non-dualist in thought, I really dig symbolology and the philosophy of language beacuse I see it as an expressive capacity.  As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
 <br> </br>
 As a collective being I tend to associate with people from divergent communities - the ones working on something radically different from the current status quo of extraction and zero sum games. The Tao which can be named is not the eternal Tao, so I wont try to articulate the intereior collective any further :). Lastly we have the exterior collective to identitfy with; and for me thats spaceship earth. Nationalisim has never worked for me, I've been the English person in Ireland and the Irish person in England - in/out groups dont work. When the aliens come I'll cease to identify as a citizen of earth, instead one of the Kosmos. 
 
