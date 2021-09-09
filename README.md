@@ -1,4 +1,4 @@
-<img align="right" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/treeyangyin.jpg" alt="From little things big things grow" width=150px height=150px/>
+<img align="center" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/OnionBanner.png"/>
 
 
 ### About - Sensemaker/Lunatic
@@ -26,3 +26,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<img align="center" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/OnionBannerBottom.png"/>
