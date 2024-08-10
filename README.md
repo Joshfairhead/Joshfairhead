@@ -5,18 +5,12 @@
 
 Don't get cought up with a static self-articulation, check out my creations instead:
 
-Home: www.JoshAFairhead.com <br> </br>
-Blog: www.ToTheCosmos.org <br> </br>
-Resources: www.consulting.tothecosmos.org <br> </br>
-Sounds: www.NeonFleaCircus.com <br> </br>
+- Home: www.JoshAFairhead.com <br> </br>
+- Blog: www.ToTheCosmos.org <br> </br>
+- Resources: www.consulting.tothecosmos.org <br> </br>
+- Sounds: www.NeonFleaCircus.com <br> </br>
 
-<br> </br>
-
-My inner landscape is often exploring the philosophy of language and playing with symbols which I interpret as expressive capacity. As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
-<br> </br>
-As a collective being I tend to relate with divergent communities - those who are working on something radically different from the current status quo of extraction and zero sum games. The Tao which can be named is not the eternal Tao, so I'll avoid trying to articulate the intereior collective any further :). Lastly we have the exterior collective to identitfy with and for me thats spaceship earth. Nationalisim has never worked in my favour, I've been the English person in Ireland and the Irish person in England - tribalistic in/out groups tend to bring issues (though admittedly they can engender a sense of belonging). When the aliens come I'll cease to identify as a citizen of earth and instead as one of the syntropic Kosmos. 
-
-In that regard, given we're likeley connected as part of a giant autopoietic network that is cognizient and conscious on every level, I might as well cease to identity at all! ✨ 
+Ad Astra ✨ 
 
 
 
