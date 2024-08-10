@@ -1,9 +1,18 @@
 <img align="center" src="https://github.com/Joshfairhead/Joshfairhead/blob/master/OnionBanner.png"/>
 
 
-### About - Sensemaker/Lunatic
+### About
 
-Identity... hmmm, tough one to express generically but I'll try! Ok - so as a singular entity I'd consider my thought as integral or non-dual, my inner landscape is often exploring the philosophy of language and playing with symbols which I interpret as expressive capacity. As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
+Don't get cought up with a static self-articulation, check out my creations instead:
+
+Home: www.JoshAFairhead.com 
+Blog: www.ToTheCosmos.org
+Resources: www.consulting.tothecosmos.org
+Sounds: www.NeonFleaCircus.com
+
+<br> </br>
+
+My inner landscape is often exploring the philosophy of language and playing with symbols which I interpret as expressive capacity. As an embodied being I enjoy various forms of coordinated movements, excersise and myofascial mobilisations - such as board-sports, dancing, circus arts, swimming, surfing, playing musical instruments or long walks on the beach/mountains!
 <br> </br>
 As a collective being I tend to relate with divergent communities - those who are working on something radically different from the current status quo of extraction and zero sum games. The Tao which can be named is not the eternal Tao, so I'll avoid trying to articulate the intereior collective any further :). Lastly we have the exterior collective to identitfy with and for me thats spaceship earth. Nationalisim has never worked in my favour, I've been the English person in Ireland and the Irish person in England - tribalistic in/out groups tend to bring issues (though admittedly they can engender a sense of belonging). When the aliens come I'll cease to identify as a citizen of earth and instead as one of the syntropic Kosmos. 
 
