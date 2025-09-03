@@ -3,14 +3,10 @@
 
 ### About
 
-Don't get cought up with a static self-articulation, check out my creations instead:
-
 - Home: www.JoshAFairhead.com 
-- Blog: www.ToTheCosmos.org
 - Resources: www.consulting.tothecosmos.org 
 - Sounds: www.NeonFleaCircus.com
 
-Ad Astra ✨ 
 
 
 
